@@ -1,11 +1,11 @@
 account only for pony town
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=brandon68759352)
 
-<img height="180cm" src="https://i.ytimg.com/vi/BiWRByWl3p0/hq720.jpg?sqp=-oaymwEhCK4FEIIDSFryq4qpAxMIARUAAAAAGAElAADIQj0AgKJD&rs=AOn4CLAu_3IReQEAM97UhyyfjrQBiYdbKg"/>
+<img height="180cm" src="https://i.ytimg.com/vi/PrCHoAL1a2k/hqdefault.jpg?sqp=-oaymwEmCOADEOgC8quKqQMa8AEB-AH-CYAC0AWKAgwIABABGGUgQihPMA8=&rs=AOn4CLBWqJ32XagEqyxiFoCHfImiZv9JMg"/>
 
-The biggest dolphin in the sea.
+Luminara will be mine. And those who deny shall pay.
 
-heewowooo ::333 im shwaaywpnwess UwU~ hewes my intwo; i wewawwy wike pwaying pony toeh... i hwope we cwan bwe fwiends yaaaaa >3< i weawwy wike stwength smp OnO pweaswe dwont be scwawed of tweawking with mwe.... 
+heewowooo ::333 im fwuixynyaanwpnnnw UwU~ hewes my intwo; i wewawwy wike pwaying pony toeh... i hwope we cwan bwe fwiends yaaaaa >3< i weawwy wike stwength smp OnO pweaswe dwont be scwawed of tweawking with mwe.... 
 
 Vintage French 1980s, Romantic Home Decor, Victorian Collectible with Miniature Chair, Gift for Her, Shabby chic
 
